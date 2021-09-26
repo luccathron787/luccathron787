@@ -1,4 +1,0 @@
-- 👋 Hi, I’m @luccathron787
-- 👀 I’m interested in coding,physics,chemics,space,video games and movies
-- 🌱 I’m currently learning coding
-- 📫 You can reach me on Discord: luccathron787#3903
